@@ -1,1 +1,1 @@
-https://github.com/focusonlinectg/Al-Hossain-Juboraj
+https://focusonlinectg.github.io/Al-Hossain-Juboraj/
